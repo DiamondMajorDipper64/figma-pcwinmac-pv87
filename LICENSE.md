@@ -1,4 +1,4 @@
-# 
+# Intelligent Figma préréglages pour Mac OS | VIP Figma préréglages pour PC Windows. Avec préréglages d'export et systèmes de grille — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
